@@ -7,7 +7,7 @@ A **Filipino**.\
 I am currently learning **Python**.
 
 # Currently Working at
-**RickIsABot Discord Bot**
+idk E
 
 # Wanna Contant Me?
 
